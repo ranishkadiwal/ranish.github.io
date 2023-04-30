@@ -1,1 +1,0 @@
-# ranish.github.io
